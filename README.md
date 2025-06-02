@@ -3,4 +3,5 @@
 William Peck  
 Blaise KAMUNTU  
 Billy Halle  
-Kevin Houle
+Kevin Houle  
+Edouard Couture  
