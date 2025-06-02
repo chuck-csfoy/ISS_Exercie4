@@ -2,5 +2,6 @@
 
 William Peck  
 Blaise KAMUNTU  
-Edouard Couture
-
+Billy Halle  
+Kevin Houle  
+Edouard Couture  
